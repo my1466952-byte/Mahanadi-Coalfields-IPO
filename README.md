@@ -36,7 +36,7 @@ Before investing, investors should evaluate the company's financial performance,
 
 Checking the Mahanadi Coalfields IPO GMP and subscription status can also help investors understand market sentiment. However, GMP is unofficial and does not guarantee listing gains.
 
-For the latest IPO GMP, allotment updates, subscription details and listing information, visit [Finowings](https://www.finowings.com/) and make informed investment decisions.
+For the latest IPO GMP, allotment updates, subscription details and listing information, visit and make informed investment decisions.
 
 ---
 
